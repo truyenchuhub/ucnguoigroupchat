@@ -19,7 +19,7 @@ Trần Ức: ?
 Group chat còn có thể đơ máy?
 
 Link truyện:
-[https://tutruyenchu.com/truyen/c-Nguoi-Group-Chat](https://truyenchuhub.com/truyen/c-Nguoi-Group-Chat)
+[https://tutruyenchu.com/truyen/c-Nguoi-Group-Chat](https://tutruyenchu.com/truyen/c-Nguoi-Group-Chat)
 
 Link truyện khác:
-[https://tutruyenchu.com/danhsach/truyen-dam-my-hay](https://truyenchuhub.com/danhsach/truyen-dam-my-hay)
+[https://tutruyenchu.com/danhsach/truyen-dam-my-hay](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
